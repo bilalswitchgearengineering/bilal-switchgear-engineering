@@ -13,7 +13,7 @@ We are an **ABB-licensed switchgear manufacturer** and **SIEMENS System Integrat
 Our clients include **GEPCO**, **Coca-Cola**, **Marriott Hotels**, **Swat Tunnel Project**, and hundreds of industrial and commercial facilities across the country.
 
 🌐 **Website:** [https://bilaleng.com](https://bilaleng.com)
-📍 **Location:** Lahore, Punjab, Pakistan
+📍 **Location:** Bilal Switchgear Engineering, 11Km Raiwind Rd, Chamru Pur Kot Bagh, Lahore
 📞 **Established:** 1978
 
 ---
